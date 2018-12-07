@@ -1,0 +1,2 @@
+# D-ch-v-gi-t-gh-v-n-ph-ng-c-a-GiDiVi-Nh-n-gi-t-t-t-c-c-c-lo-i-gh-v-n-ph-ng-TPHCM
+Chào bạn GiDiVi chuyên giặt ghế văn phòng các loại giá rẻ ở TPHCM. Chúng tôi nhận giặt tất cả các loại ghế văn phòng, hội trường, ghế nệm, ghế sofa, ghế nỉ… với giá cực rẻ. Liên hệ với GiDiVi khi công ty bạn cần giặt ghế văn phòng nhé. https://vesinhnhaviet.net/giat-ghe-van-phong/ #giatghe #giatghevanphong #giatghetphcm #giatghevanphongtphcm﻿
